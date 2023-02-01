@@ -1,6 +1,6 @@
 - Hi, I’m @SetarehJamali;
 - python javascript 
-- I’m interested in anything with tech
+- I’m interested with anything related to tech
 - How to reach me www.whatisthishell1077@gmail.com
 
 <!---
